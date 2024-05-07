@@ -20,5 +20,5 @@ Você pode entrar em contato comigo
 00001103203447sp@al.educacao.sp.gov.br
 
 
-@alurastartestudante
+@vitoriagarcia
   
